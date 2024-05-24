@@ -1,7 +1,1 @@
-- 👋 Hi, I’m @BLARXX
-- 👀 I’m interested in 🥷
-- 🌱 I’m currently learning 🥷
-- 💞️ I’m looking to collaborate on 🥷
-- 📫 How to reach me - 🥷
-- 😄 Pronouns: 🥷
-- ⚡ Fun fact: 🥷
+Conctact with me (Telegram): https://t.me/Shadow_Bx2
